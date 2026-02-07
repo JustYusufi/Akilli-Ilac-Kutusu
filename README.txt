@@ -5,7 +5,8 @@
 
 Projemiz insanların ilacını sürekli unutan ve zihnini ilaç ile meşkul tutmak istemeyenler içindir.
 
-
+Bize Ulaşın: yusufegeturedi+teamsifa@gmail.com
 
 !!!ÖNEMLİ UYARI!!!
 Bu proje tamamen orijinal fikrimizdir, bize danışmadan kullanmak etik dışıdır!!
+
